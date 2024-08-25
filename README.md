@@ -10,7 +10,7 @@ se va la bogon
 mamma
 sasasa
 woah
-amazing
+amazingsrgsgsg
 invredibke
 aghrtjsjjss
 wonderful
