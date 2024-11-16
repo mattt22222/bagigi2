@@ -6,7 +6,7 @@ ciao bell
 auanagana
 ahahaha
 amanda
-se va la bogon
+se va la bogonasdvag
 mamma
 sasasa
 woah
