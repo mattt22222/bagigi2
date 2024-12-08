@@ -10,7 +10,7 @@ se va la bogonasdvag
 mamma
 sasasa
 woah
-amazingsrgsgsg
+amazingsrgsgsgammazza oh
 invredibke
 aghrtjsjjss
 wonderfulhtdhdtj
